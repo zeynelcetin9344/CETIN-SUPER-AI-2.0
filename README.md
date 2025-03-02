@@ -1,1 +1,0 @@
-# CETIN-SUPER-AI-2.0
